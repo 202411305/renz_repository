@@ -1,11 +1,11 @@
- ᕙ(⇀‸↼‶)ᕗ # renz_repository ╭∩╮( •̀_•́ )╭∩╮
-OOP REPOSITORY
-About me: ────୨ৎ────
-I'm Renz Mark D. Sabeniano 🙌
-19 years old 🎀
-Likes to play Basketball
-( っ'-')╮=͟͟͞͞🏀 
-⛹ 
-🏀ᶻ 𝗓 𐰁
-Favorite Food is Afritada 
-≽^• ˕ • ྀི≼
+ ᕙ(⇀‸↼‶)ᕗ # renz_repository ╭∩╮( •̀_•́ )╭∩╮ ;
+OOP REPOSITORY ;
+About me: ────୨ৎ──── ; 
+I'm Renz Mark D. Sabeniano 🙌 ; 
+19 years old 🎀 ;
+Likes to play Basketball ; 
+( っ'-')╮=͟͟͞͞🏀 ;
+⛹ ;
+🏀ᶻ 𝗓 𐰁 ;
+Favorite Food is Afritada ;
+≽^• ˕ • ྀི≼ ;
